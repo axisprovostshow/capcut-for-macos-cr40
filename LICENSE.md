@@ -1,4 +1,4 @@
-# 
+# CapCut for macOS instant Tool: motion-tracking & video-stabilization offers the most advanced CapCut for macOS tool, with motion-tracking and video-stabilization. Ideal for
 
 
 
